@@ -1,4 +1,4 @@
-완전자살메뉴얼 한국어 자체 번역판
+완전자살메뉴얼 한국어 자체 번역판 pdf
 
 (完全自殺マニュアル, The complete manual of suicide)
 
